@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Minh Nguyen
+# Hi there! 👋 I'm Vu Minh Nguyen
 
 🎓 3rd year Bachelor's student at Aalto University
 
